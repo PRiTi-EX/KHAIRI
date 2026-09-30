@@ -1,4 +1,8 @@
-<img width="1672" height="941" alt="khairi" src="https://github.com/user-attachments/assets/b7b6ce4f-ba09-46b8-b487-3425a0a8e215" />
+<img width="1536" height="1024" alt="khairi" src="https://github.com/user-attachments/assets/dc83af4c-e0a4-4308-82f8-d1b52ea304f8" />
+
+
+
+
 
 # KHAIRI
 
