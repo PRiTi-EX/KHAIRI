@@ -1,3 +1,5 @@
+<img width="1672" height="941" alt="khairi" src="https://github.com/user-attachments/assets/b7b6ce4f-ba09-46b8-b487-3425a0a8e215" />
+
 # KHAIRI
 
 > A tigress is missing. A forest station is silent.
